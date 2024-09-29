@@ -1,1 +1,2 @@
 Sycamore Dennis
+dennissy@oregonstate.edu
